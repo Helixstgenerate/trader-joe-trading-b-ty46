@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with trader joe trading bot custom Automation | price-impact-analysis & rug-pull-detection, the #1 trader joe trading bot. Includes price-impact-analysis and
 
 
 
